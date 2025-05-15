@@ -1,6 +1,7 @@
 🎮 Minecraft 1.21.80.3 APK: La experiencia de supervivencia definitiva
 ---------
 Minecraft 1.21.80.3 APK es la última versión del icónico juego de simulación, aventura y supervivencia desarrollado por Mojang Studios. Disponible en Android, iOS, PC y consolas, esta versión actualizada lleva la creatividad y la exploración a un nuevo nivel. Con millones de jugadores alrededor del mundo, Minecraft sigue siendo un fenómeno global gracias a su libertad total de construcción y aventura.
+
 Descargar: [Minecraft 1.21.80.3](https://apkmodjoy.net/es/minecraft-1-21-80-3/)
 ---------
 ⚔️ Objetivo del juego
